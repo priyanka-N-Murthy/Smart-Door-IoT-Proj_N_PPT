@@ -1,1 +1,0 @@
-# Smart-Door-IoT-Proj_N_PPT
